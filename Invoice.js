@@ -13,7 +13,7 @@
     Terima kasih sudah menggunakan karya saya. :)
 
     Salam,
-    Template.web.id
+    octashop.biz.id
 
     Terakhir Diperbarui : 13/11/2024 @ 5:58
 
